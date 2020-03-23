@@ -1,4 +1,3 @@
-# mafiacoders.com - RIP
-
+# RIP
 
 gunz was pretty fun tho
